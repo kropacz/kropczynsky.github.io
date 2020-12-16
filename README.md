@@ -1,1 +1,0 @@
-# kropczynsky.github.io
